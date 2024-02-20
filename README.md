@@ -1,0 +1,1 @@
+# Element_qiymatini-o-zgartirish
